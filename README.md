@@ -1,0 +1,5 @@
+- Sup, I’m @GC3PR
+- Im a nerd who likes Modding and Coding
+- Currently trying to teach myself how to use Unity
+- I mostly work alone, but if you need me for some reason just ask
+- If you wanna talk, shoot me a message at GC3PR on discord
